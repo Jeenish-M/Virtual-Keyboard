@@ -1,3 +1,3 @@
 # Screenshot (Design - Jeenish Mungara)
 
-![Virtual Keyboard](https://github.com/user-attachments/assets/e50d8699-66e3-4950-bfe6-bc28da682eef)
+![Screenshot 2024-11-29 105551](https://github.com/user-attachments/assets/eca6840a-b774-4d31-b350-e6a83f104ec6)
